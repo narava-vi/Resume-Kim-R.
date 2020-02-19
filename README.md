@@ -1,1 +1,1 @@
-# Resume-Kim-R.
+# Resume-Kim-R
